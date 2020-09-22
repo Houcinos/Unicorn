@@ -1,2 +1,0 @@
-# Information 
-*Age ; 18
